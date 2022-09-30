@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working for my Community "Valorian at War"<br>🌱 I’m currently learning<br>⚡ Fun fact
+🔭 I’m currently working for my Community "Valorian at War"<br>🌱 I’m currently learning<br>
 
 
 ## 🌐 Socials:
